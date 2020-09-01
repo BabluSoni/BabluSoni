@@ -11,6 +11,7 @@
 - 🥅 2021 Goals: Contribute to Open Source projects
 - ⚡ Fun fact: I love to watch funny memes
 
+---
 
 ### Connect with me:
 
