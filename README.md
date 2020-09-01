@@ -23,7 +23,6 @@
 
 <br />
 
----
 
 ### Languages and Tools:
 
