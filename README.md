@@ -10,6 +10,7 @@
 - 👯 I’m looking to collaborate with other Developer for my project
 - 🥅 2021 Goals: Contribute to Open Source projects
 - ⚡ Fun fact: I love to watch funny memes
+- 📩 How to reach me: bablusoni792@gmail.com
 
 ---
 
